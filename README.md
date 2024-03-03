@@ -1,2 +1,2 @@
 kul kul och mera kul!
-Här visar jag bara att jag gått igenom och förstått övningarna
+Här visar jag bara att jag gått igenom, gjort och förstått övningarna
